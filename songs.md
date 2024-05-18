@@ -7,3 +7,4 @@
 ## Very Oldies
 
 **Metallica:** Master of Puppets
+**Metallica:** One
